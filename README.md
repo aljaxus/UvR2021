@@ -1,3 +1,4 @@
 # UvR2021
 a repo I am forced to create in order to pass in UNI >:{
-Hail satan 666
+
+no bad words @onlyhans
